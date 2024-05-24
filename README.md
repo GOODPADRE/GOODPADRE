@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GOODPADRE
-- 👀 I’m interested in ...history, networking, financial growth, making the world better
+- 👀 I’m interested in ...history, networking, financial growth, making the world better, mental health
 - 🌱 I’m currently learning ...how to use this tool
 - 💞️ I’m looking to collaborate on ...history of the rio grande valley
 - 📫 How to reach me ...balli.family@icloud.com
